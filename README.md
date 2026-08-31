@@ -16,4 +16,4 @@ I am a Prospective PhD Researcher bridging traditional civil engineering practic
 ## Contact Information
 * **Email:** arveen2601@gmail.com
 * **LinkedIn:** [linkedin.com/in/arveen-anbarasan-9b9759288](https://www.linkedin.com/in/arveen-anbarasan-9b9759288)
-* **Academic Portfolio:** [arveen.avintechgroup.com](https://arveen.avintechgroup.com)
+* **Academic Portfolio:** [arveenanbarasan.avintechgroup.com](https://arveenanbarasan.avintechgroup.com)
